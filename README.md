@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently student at P.E.S. College of Engineering Mandya 571401<br><br>Aspiring software Engineer.<br>Always eager to do something new and different.
+Student at P.E.S. College of Engineering Mandya 571401<br><br>Aspiring software Engineer.<br>Always eager to do something new and different.
 
 
 ## 🌐 Socials:
